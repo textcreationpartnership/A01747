@@ -35,9 +35,16 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A treatise concerning the trinitie of persons in vnitie of the deitie Written to Thomas Mannering an
+
+1. TO MY VERY LOuing
+and deare friend Maſter
+Thomas White, a Citizen
+of Briſtow.
+
 #####Body#####
-A treatise concerning the trinitie of persons in vnitie of the deitie Written to Thomas Mannering an
+
+1. THE TREATISE.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
